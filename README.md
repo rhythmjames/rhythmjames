@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on challenging and impactful projects.
 - 📫 How to reach me X: @rhythmjames1
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'd love to own my own homestead and grow my own food and rainse my own animals.
+- ⚡ Fun fact: I'd love to own my own homestead and grow my own food and raise my own animals.
 
 <!---
 rhythmjames/rhythmjames is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
